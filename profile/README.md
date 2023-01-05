@@ -1,6 +1,7 @@
 # [Amazins](https://store.amazins.ga)
 
-Overcomplicating Complicatedly Simple yet Complex Code 🤨
+Making **affordable merchandise** available **to the world!**
 
-### > `socials.bin`
-> [Discord](https://discord.com/invite/cRf4HRKdZX)
+## > `socials.bin`
+\> [Instagram](https://instagram.com/amazins.ga)<br>
+\> [Discord](https://discord.com/invite/cRf4HRKdZX)
